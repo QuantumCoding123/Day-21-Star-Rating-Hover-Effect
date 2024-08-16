@@ -8,7 +8,7 @@
 
 🌈 Styling Options: Customize colors, shadows, and borders for uniqueness.
 
-You-Tube Tutorial - https://youtu.be/ghHzhtSzXAc
+You-Tube Tutorial - https://youtu.be/t2aTEzLqETk
 
 Free 100 Websites with Source Code 👇
 
